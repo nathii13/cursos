@@ -1,2 +1,2 @@
 # cursos
-Be proud of me, Y-sensei
+Be proud of me, Y-senpai
